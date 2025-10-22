@@ -1,0 +1,1 @@
+# szgames.github.io
